@@ -2,4 +2,4 @@
 
 ## Contact
 
-- **Instagram**: [@aomkoyo](https://www.instagram.com/yuikanx/)
+- **Instagram**: [@yuikanx](https://www.instagram.com/yuikanx/)
